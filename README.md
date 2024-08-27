@@ -1,5 +1,5 @@
 # 💫 About Me:
-✍️Iam Vijay Kumar, From Sivakasi.<br>App developer 😎.
+✍️Iam VijayaKumar, From Sivakasi.<br>App developer 😎.
 
 
 ## 🌐 Socials:
